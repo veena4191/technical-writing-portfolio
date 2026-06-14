@@ -33,6 +33,6 @@ I am an Electronics and Optoelectronics postgraduate with experience in academic
 
 ## Contact
 
-LinkedIn: www.linkedin.com/in/veena-mooss-1b92921a2
+LinkedIn: www.linkedin.com/in/veena-s-mooss-1b92921a2
 
 Email: veena_mooss@yahoo.com
